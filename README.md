@@ -24,7 +24,7 @@
 
 ## 📫 How to reach me
 - 📧 Email: sachdevagarv02@gmail.com
-- 💼 LinkedIn: https://in.linkedin.com/in/garvsachdeva-96aa06284
+- 💼 LinkedIn: [https://in.linkedin.com/in/garvsachdeva-96aa06284](https://www.linkedin.com/in/garv-sachdeva-96aa06284/)
 
 ---
 
